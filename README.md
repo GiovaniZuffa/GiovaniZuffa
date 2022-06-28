@@ -1,6 +1,6 @@
 - oi, eu sou o estudante @GiovaniZuffa
 - eu estou interess em
--  i´m ccurrently learning
+-  i´m currently learning
 - i´m looking to collaborate on
 - how to reach me
 
